@@ -1,0 +1,1 @@
+# C--pastiside-shop-management-
